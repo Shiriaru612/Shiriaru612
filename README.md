@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Shiriaru612
+- 👀 I’m interested in networking, computer science, and web-design.
+- 🌱 I’m currently learning web-design. 
+- 📫 How to reach me: fosterethan241@yahoo.com . 
